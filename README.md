@@ -27,4 +27,4 @@ Independent shops run on thin margins with tills that record sales and do nothin
 
 ---
 
-📫 **Contact:** jdranenterprises@gmail.com
+📫 **Contact:** www.jdranenterprises@gmail.com
